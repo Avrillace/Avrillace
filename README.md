@@ -1,9 +1,8 @@
-## WIP! 
+## If you know how to add an image to github readme PLEASE tell us
 <img src="http://estruyf-github.azurewebsites.net/api/VisitorHit?user=Avrillace&repo=Avrillace&countColorcountColor&countColor=%90c1ee"/>
 <!--
 **Avrillace/Avrillace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-![aesthetic](https://github.com/user-attachments/assets/cb7755bf-b65b-44ef-81a0-9b7a4451e125)
-![aesthetic](https://github.com/user-attachments/assets/5daef6de-2362-48fd-acac-1999f7c208d8)
+
 
 
 - 🔭 I’m currently working on ...
