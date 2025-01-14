@@ -2,7 +2,7 @@
 <img src="http://estruyf-github.azurewebsites.net/api/VisitorHit?user=Avrillace&repo=Avrillace&countColorcountColor&countColor=%90c1ee"/>
 <!--
 **Avrillace/Avrillace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+<img src="https://[simpleshark.neocities.org/Pictures/Miscellaneous/0-text.jpg](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fanimated-blue-background-gifs&psig=AOvVaw0nl9vSRQX33DWnzGSA50TN&ust=1736978535015000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCKDA6reb9ooDFQAAAAAdAAAAABAJ)" width="700" height="auto" alt="fish!">
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
