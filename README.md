@@ -1,7 +1,23 @@
 ## 𓇼 ⋆｡˚ 𓆝⋆｡˚ 𓇼Please check out our strawpage!𓇼 ⋆｡˚ 𓆝⋆｡˚ 𓇼
+𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝
+
+
+コンシャスTHOUGHTS ＭＩＤＮＩＧＨＴ                                                                                                             
+⋅˚₊‧ ଳ ‧₊˚ ⋅ ଳ‧₊˚◁◁    ▐ ▌     ▷▷ ‧₊ଳ˚⋅˚₊‧ ଳ ‧₊˚ ⋅                                                                                                         
+2:18━━━━━━━━━━♡━━━2:39
+
+
+⋆˙˳𓂃𓂃𓂃𓂃𓊝𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃˙˳⋆
+
+ ________________________
+|  ᴘʀᴏᴛᴇᴄᴛ ᴏᴜʀ sʜᴀʀᴋs!!  |
+|   𝗘𝗻𝗱 𝘀𝗵𝗮𝗿𝗸 𝗳𝗶𝗻𝗻𝗶𝗻𝗴!!    |
+----------------------------------------
 
 <img src="http://estruyf-github.azurewebsites.net/api/VisitorHit?user=Avrillace&repo=Avrillace&countColorcountColor&countColor=%90c1ee"/>
+
 <!--
+
 **Avrillace/Avrillace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
