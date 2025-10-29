@@ -1,5 +1,3 @@
-## 𓇼 ⋆｡˚ 𓆝⋆｡˚ 𓇼Please check out our strawpage!𓇼 ⋆｡˚ 𓆝⋆｡˚ 𓇼                                                                           
-## NOTICE! we have decided to create seperate github accounts and strawpages. This page will me mine- Luna
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞                                                            
  I have Autism [high functioning], ADHD and mild dyslexia.
 
